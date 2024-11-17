@@ -5,9 +5,12 @@
 ### <p align="center"> Gotta keep it clean in a house of lies
 
 
-Cody / Crimson !! 4teen
+<p align="center"> Cody / Crimson !! 4teen , otherkin
 <p align="center"> <img src="https://i.imgur.com/1CBhrqm.gif" /> <img src="https://i.imgur.com/11nQph1.gif" /> <img src="https://64.media.tumblr.com/9441e1a147fe43704f273f162f22faa6/ff58a3af22f3bbb7-19/s100x200/410419112343ab7ed2186792766caad9038f4ec4.webp" </p>
-C+H friendly, I usually hang out with my friends while I'm playing — but don't be afraid of giving me a private message if you want to talk to me! I'm usually offtab :)
+<p align="center"> C+H friendly, I usually hang out with my friends while I'm playing 
+<p align="center"> Don't be afraid of giving me a private message if you want to talk to me! 
+  
+<p align="center"> I'm usually offtab! I might not respond if I don't feel comfortable enough.
 
 
 ### <p align="center"> An original thought? WE WON'T ALLOW A CRIME
